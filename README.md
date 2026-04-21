@@ -36,4 +36,4 @@ M Al Fauzan / @heyyaru
 
 Zivara Aurelyta Ahmad / @arellyn
 
-Dibuat dengan ❤️ untuk mempermudah operasional bisnis.
+Dibuat untuk mempermudah operasional bisnis.
